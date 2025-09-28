@@ -19,7 +19,7 @@ Communities that had hoped for factories got slogans. Workers that had dreamed o
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-### below is kinda what I think on the economy situation 
+### below is kinda what I think on the economy situation, also written by ChatGPT.
 
 **The Big Problem with the Republicans**
 
