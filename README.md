@@ -86,8 +86,7 @@ And America, once dreaming of cars on open highways, found itself locked in an e
 
 **Input**  
 
-write "the problem with ford motor companies: they were married to war planners intent on war".
-
+write "why the biden-trump economy makes sense now: fragment and limit supply chains to avoid love and war!"  
 
 **Why the Biden-Trump Economy Makes Sense Now: Fragment and Limit Supply Chains to Avoid Love and War!**  
 
